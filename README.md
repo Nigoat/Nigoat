@@ -31,4 +31,12 @@ Building open-source alternatives to daily utility apps.
 
 Collaborating on native mobile and fintech solutions.
 
-### 📫 How to reach me: Message me thru discord, my username is nigoat123 !
+### 📫 How to reach me: Message me thru discord or email!
+
+---
+
+### 🤝 CONTACTS:
+
+✉️ EMAIL: nizardev123@gmail.com
+
+💬 DISCORD: nigoat123
