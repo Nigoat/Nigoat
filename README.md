@@ -33,10 +33,6 @@ Collaborating on native mobile and fintech solutions.
 
 ### 📫 How to reach me: Message me thru discord or email!
 
----
-
-### 🤝 CONTACTS:
-
 ✉️ EMAIL: nizardev123@gmail.com
 
 💬 DISCORD: nigoat123
